@@ -1,4 +1,3 @@
 # **Maritza Sinti**
-## Perú
-
-### Perú :blush:
+### Perú
+Perú :blush:
