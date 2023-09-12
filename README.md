@@ -1,7 +1,8 @@
 **Reddmar Quevedo**
-## Venezuela
+## Nací en Venezuela
 
-Peru 😁
+### Vivo en Perú 😁
+
 Maritza Sinti
 Marcela Rendon 
 AnaVillarreal
