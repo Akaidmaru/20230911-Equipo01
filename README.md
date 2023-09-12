@@ -1,3 +1,3 @@
 # **Maritza Sinti**
-### Perú
-Perú :blush:
+### País de nacimiento: Perú
+> País actual: Perú :blush:
