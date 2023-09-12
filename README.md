@@ -1,3 +1,5 @@
-Reddmar Quevedo
-Maritza Sinti
-Luis Cruz
+**Luis Cruz**
+
+País Nacimiento: Ecuador
+
+>País Actual: Ecuador 😀
